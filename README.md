@@ -1,1 +1,0 @@
-# TTK4115-Helicopter
